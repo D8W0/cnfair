@@ -1,1 +1,2 @@
-
+Bom:Lel
+Smok:Tok
